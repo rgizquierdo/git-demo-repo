@@ -5,15 +5,15 @@
 ## Ingredients
 
 - Espresso ground coffee (preferably a dark roast or Cuban coffee blend)
-- White sugar
+- 1/2 Brawn sugar
 - Water
-- Espresso maker or moka pot
+- Espresso makers
 
 ## How to Make Cuban coffee
 
 ### Step 1
 
-- Start with cold water and coffee grounds in the espresso maker or moka pot. Use about 1-2 tbsp of ground coffee per 1-2 oz of water.
+- Start with cold water and coffee grounds in the espresso maker. Use about 1-2 tbsp of ground coffee per 1-2 oz of water.
 
 ### Step 2
 
@@ -21,7 +21,7 @@
 
 ### Step 3
 
-- In a separate cup or serving glass, add 1-2 tsp of white sugar per 1-2 oz of brewed espresso. The sugar helps cut the bitterness.
+- In a separate cup or serving glass, add 1/2 tsp of brown sugar per 1-2 oz of brewed espresso. The sugar helps cut the bitterness.
 
 ### Step 4
 
@@ -34,6 +34,7 @@
 ### Step 6
 
 - Optionally, you can add a few drops of espresso over the crema to marble it.
+- Optionally, you can add a sip of cuban rum.
 
 ### Step 7
 
