@@ -7,8 +7,7 @@
 - Espresso ground coffee (preferably a dark roast or Cuban coffee blend)
 - 1/2 Brawn sugar
 - Water
-- Espresso maker
-- A sip of rum
+- Espresso makers
 
 ## How to Make Cuban coffee
 
