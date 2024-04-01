@@ -8,6 +8,7 @@
 - 1/2 Brawn sugar
 - Water
 - Espresso maker
+- A sip of rum
 
 ## How to Make Cuban coffee
 
@@ -34,6 +35,7 @@
 ### Step 6
 
 - Optionally, you can add a few drops of espresso over the crema to marble it.
+- Optionally, you can add a sip of cuban rum.
 
 ### Step 7
 
