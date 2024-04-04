@@ -30,3 +30,8 @@
 ### Step 5
 
 - Top with the thin layer of milk foam remaining in the container.
+
+### Step 6
+
+- Dont forget to zip slowly for full enjoyment.
+
