@@ -33,5 +33,4 @@
 
 ### Step 6
 
-- Dont forget to zip slowly for full enjoyment.
-
+- Don't forget to zip slowly for full enjoyment.
